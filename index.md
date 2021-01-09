@@ -46,7 +46,7 @@ Rick Fenton
 
 ## Confirmation:
 Cameron Bradley (Voice),  
-Rick Fenton, Ricky Fenton, Thomas Fenton, Carston Feigleson, Art Sandridge, Bishop Benjamin Johnson
+newRick Fenton, Ricky Fenton, Thomas Fenton, Carston Feigleson, Art Sandridge, Bishop Benjamin Johnson
 
 ## Bishopbric Welcome:
 Bishop Benjamin Johnson
