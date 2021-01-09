@@ -30,23 +30,25 @@ Ricky Fenton
 Cameron Bradley
 
 ## Witnesses:
-Hannah Fenton and Thomas Fenton
+Hannah Fenton  
+Thomas Fenton
 
-## First Intermediate Song:
-I Feel My Savior's Love (Children's Songbook pg. 74)
-
-## Second Intermediate Song:
-I Am a Child of God (Children's Songbook pg. 2)
-
-## Third Intermediate Song:
+## Intermediate Songs:
+I Feel My Savior's Love (Children's Songbook pg. 74)  
+I Am a Child of God (Children's Songbook pg. 2)  
 A Child's Prayer (Children's Songbook pg. 12)
 
 ## Talk on Holy Ghost:
 Rick Fenton
 
 ## Confirmation:
-Cameron Bradley (Voice),  
-newRick Fenton, Ricky Fenton, Thomas Fenton, Carston Feigleson, Art Sandridge, Bishop Benjamin Johnson
+Cameron Bradley (Voice)  
+Rick Fenton  
+Ricky Fenton  
+Thomas Fenton  
+Carston Feigleson  
+Art Sandridge  
+Bishop Benjamin Johnson
 
 ## Bishopbric Welcome:
 Bishop Benjamin Johnson
