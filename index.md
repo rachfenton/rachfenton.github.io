@@ -1,4 +1,4 @@
-# Baptism of Sarah Bradley
+# Baptism of Sarah Elizabeth Bradley
 ## Flat Creek Ward
 ## Newnan Stake
 ## The Church of Jesus Christ of Latter-day Saints
