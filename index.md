@@ -30,8 +30,7 @@ Ricky Fenton
 Cameron Bradley
 
 ## Witnesses:
-Hannah Fenton
-Thomas Fenton
+Hannah Fenton and Thomas Fenton
 
 ## First Intermediate Song:
 I Feel My Savior's Love (Children's Songbook pg. 74)
