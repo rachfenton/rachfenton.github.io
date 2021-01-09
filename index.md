@@ -2,7 +2,7 @@
 ## Flat Creek Ward
 ## Newnan Stake
 ## The Church of Jesus Christ of Latter-day Saints
-
+ 
 ## Presiding:
 Bishiop Benjamin Johnson
 
