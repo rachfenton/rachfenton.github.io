@@ -2,7 +2,7 @@
 ## Flat Creek Ward
 ## Newnan Stake
 ## The Church of Jesus Christ of Latter-day Saints
-
+Images
 
 ## Presiding:
 Bishiop Benjamin Johnson
@@ -17,21 +17,28 @@ Melanie Fenton
 When I am Baptised (Children's Songbook pg. 103)
 
 ## Opening Prayer:
+Emery Fenton
 
 ## Reflection on Sarah
 Rachel Bradley
 
 ## Talk on Baptism:
+Ricky Fenton
 
 ## Baptismal Ordinance:
 Cameron Bradley
 
 ## Witnesses:
 Hannah Fenton
+Thomas Fenton
 
 ## Intermediate Songs:
+I Feel My Savior's Love (Children's Songbook pg. 74)
+I Am a Child of God (Children's Songbook pg. 2)
+A Child's Prayer (Children's Songbook pg. 12)
 
 ## Talk on Holy Ghost:
+Rick Fenton
 
 ## Confirmation:
 Cameron Bradley
@@ -40,9 +47,10 @@ Cameron Bradley
 Bishiop Benjamin Johnson
 
 ## Closing Song:
-
+When Jesus Christ Was Baptised (Children's Songbook pg. 102)
 
 ## Closing Prayer:
+Evan Bradley
 
 
 You can use the [editor on GitHub](https://github.com/rachfenton/rachfenton.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
