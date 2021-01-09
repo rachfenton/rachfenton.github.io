@@ -33,9 +33,13 @@ Cameron Bradley
 Hannah Fenton
 Thomas Fenton
 
-## Intermediate Songs:
+## First Intermediate Song:
 I Feel My Savior's Love (Children's Songbook pg. 74)
+
+## Second Intermediate Song:
 I Am a Child of God (Children's Songbook pg. 2)
+
+## Third Intermediate Song:
 A Child's Prayer (Children's Songbook pg. 12)
 
 ## Talk on Holy Ghost:
