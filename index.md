@@ -5,10 +5,10 @@
 Images
 
 ## Presiding:
-Bishiop Benjamin Johnson
+Bishop Benjamin Johnson
 
 ## Conducting:
-Bishiop Benjamin Johnson
+Bishop Benjamin Johnson
 
 ## Chorister:
 Melanie Fenton
@@ -44,7 +44,7 @@ Rick Fenton
 Cameron Bradley
 
 ## Bishopbric Welcome:
-Bishiop Benjamin Johnson
+Bishop Benjamin Johnson
 
 ## Closing Song:
 When Jesus Christ Was Baptised (Children's Songbook pg. 102)
