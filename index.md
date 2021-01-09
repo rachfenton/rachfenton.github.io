@@ -2,7 +2,7 @@
 ## Flat Creek Ward
 ## Newnan Stake
 ## The Church of Jesus Christ of Latter-day Saints
-Images
+https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1
 
 ## Presiding:
 Bishop Benjamin Johnson
