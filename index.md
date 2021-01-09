@@ -45,7 +45,7 @@ A Child's Prayer (Children's Songbook pg. 12)
 Rick Fenton
 
 ## Confirmation:
-Cameron Bradley
+Cameron Bradley (Voice), Rick Fenton, Ricky Fenton, Thomas Fenton, Carston Feigleson, Art Sandridge, Bishop Benjamin Johnson
 
 ## Bishopbric Welcome:
 Bishop Benjamin Johnson
