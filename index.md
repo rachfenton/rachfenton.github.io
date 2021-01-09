@@ -1,7 +1,17 @@
-# Baptism of Sarah Bradley
-## Flat Creek Ward
-## Newnan Stake
-## The Church of Jesus Christ of Latter-day Saints
+## Presiding:
+## Conducting:
+## Chorister:
+## Opening Song:
+## Opening Prayer:
+## Talk on Baptism:
+## Baptismal Ordinance:
+## Witnesses:
+## Intermediate Songs:
+## Talk on Holy Ghost:
+## Confirmation:
+## Bishopbric Welcome:
+## Closing Song:
+## Closing Prayer:
 
 You can use the [editor on GitHub](https://github.com/rachfenton/rachfenton.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
