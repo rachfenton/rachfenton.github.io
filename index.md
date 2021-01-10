@@ -50,7 +50,7 @@ Carston Feigleson
 Art Sandridge  
 Bishop Benjamin Johnson
 
-## Bishopbric Welcome:
+## Bishopric Welcome:
 Bishop Benjamin Johnson
 
 ## Closing Song:
