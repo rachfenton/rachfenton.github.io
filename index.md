@@ -9,7 +9,7 @@
 Bishop Benjamin Johnson
 
 ## Conducting:
-Bishop Benjamin Johnson
+Jeffrey Austin
 
 ## Chorister:
 Melanie Fenton
@@ -51,7 +51,10 @@ Art Sandridge
 Bishop Benjamin Johnson
 
 ## Bishopric Welcome:
-Bishop Benjamin Johnson
+Jeffrey Austin
+
+## Primary Welcome:
+Jenna Moss
 
 ## Closing Song:
 [When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
