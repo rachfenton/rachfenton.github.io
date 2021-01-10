@@ -15,7 +15,7 @@ Bishop Benjamin Johnson
 Melanie Fenton
 
 ## Opening Song:
-When I am Baptised (Children's Songbook pg. 103)
+[When I am Baptised (Children's Songbook pg. 103)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-i-am-baptized?lang=eng)  
 
 ## Opening Prayer:
 Emery Fenton
@@ -34,9 +34,9 @@ Hannah Fenton
 Thomas Fenton
 
 ## Intermediate Songs:
-I Feel My Savior's Love (Children's Songbook pg. 74)  
+[I Feel My Savior's Love (Children's Songbook pg. 74)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-feel-my-saviors-love?lang=eng)  
 [I Am a Child of God (Children's Songbook pg. 2)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-am-a-child-of-god?lang=eng)  
-A Child's Prayer (Children's Songbook pg. 12)
+[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)  
 
 ## Talk on Holy Ghost:
 Rick Fenton
@@ -54,7 +54,7 @@ Bishop Benjamin Johnson
 Bishop Benjamin Johnson
 
 ## Closing Song:
-When Jesus Christ Was Baptised (Children's Songbook pg. 102)
+[When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
 
 ## Closing Prayer:
 Evan Bradley
