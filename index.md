@@ -60,6 +60,7 @@ Bishop Benjamin Johnson
 Evan Bradley
 
 ## Zoom Link
-[Meeting ID: 675 550 3911](https://us04web.zoom.us/j/6755503911)  
+[Zoom Meeting](https://us04web.zoom.us/j/6755503911)  
+Meeting ID: 675 550 3911  
 Please mute your audio.  
 The password will be sent via text message. Thank you!
