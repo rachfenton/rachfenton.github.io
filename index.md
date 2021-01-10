@@ -35,7 +35,7 @@ Thomas Fenton
 
 ## Intermediate Songs:
 I Feel My Savior's Love (Children's Songbook pg. 74)  
-I Am a Child of God (Children's Songbook pg. 2)  
+[I Am a Child of God (Children's Songbook pg. 2)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-am-a-child-of-god?lang=eng)  
 A Child's Prayer (Children's Songbook pg. 12)
 
 ## Talk on Holy Ghost:
