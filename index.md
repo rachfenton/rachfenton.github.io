@@ -59,6 +59,6 @@ Bishop Benjamin Johnson
 ## Closing Prayer:
 Evan Bradley
 
-## Zoom Links
+## Zoom Link
 [Meeting ID: 675 550 3911](https://us04web.zoom.us/j/6755503911)  
-Password will be sent via text message
+Password will be sent via text message.
