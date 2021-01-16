@@ -46,7 +46,8 @@ Cameron Bradley (Voice)
 Rick Fenton  
 Ricky Fenton  
 Thomas Fenton  
-Carston Feigleson  
+Carston Feigleson
+Alex Hallam
 Art Sandridge  
 Bishop Benjamin Johnson
 
