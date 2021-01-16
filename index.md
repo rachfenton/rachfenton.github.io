@@ -46,9 +46,9 @@ Cameron Bradley (Voice)
 Rick Fenton  
 Ricky Fenton  
 Thomas Fenton  
-Carston Feigleson
-Alex Hallam
-Art Sandridge  
+Carston Feigleson  
+Alex Hallam  
+Art Sandridge    
 Bishop Benjamin Johnson
 
 ## Bishopric Welcome:
