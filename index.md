@@ -1,9 +1,8 @@
-# Baptism of Sarah Elizabeth Bradley
+<!--# Baptism of Sarah Elizabeth Bradley
 ## Flat Creek Ward
-## Newnan Stake
-## The Church of Jesus Christ of Latter-day Saints
-<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
-<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
+## Newnan Sthrist of Latter-day Saints
+<!--<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">-->
+<!--<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">-->
 
 ## Presiding:
 Bishop Benjamin Johnson
@@ -67,4 +66,4 @@ Evan Bradley
 [Zoom Meeting](https://us04web.zoom.us/j/6755503911)  
 Meeting ID: 675 550 3911  
 Please mute your audio.  
-The password will be sent via text message. Thank you!
+The password will be sent via text message. Thank you!-->
