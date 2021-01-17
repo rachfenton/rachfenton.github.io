@@ -1,69 +1,69 @@
 <!--# Baptism of Sarah Elizabeth Bradley
-## Flat Creek Ward
-## Newnan Sthrist of Latter-day Saints
-<!--<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">-->
-<!--<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">-->
+<!--### Flat Creek Ward
+<!--### Newnan Sthrist of Latter-day Saints
+<!--<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
+<!--<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 
-## Presiding:
-Bishop Benjamin Johnson
+<!--### Presiding:
+<!--#Bishop Benjamin Johnson
 
-## Conducting:
-Jeffrey Austin
+<!--### Conducting:
+<!--Jeffrey Austin
 
-## Chorister:
-Melanie Fenton
+<!--## Chorister:
+<!--Melanie Fenton
 
-## Opening Song:
-[When I am Baptised (Children's Songbook pg. 103)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-i-am-baptized?lang=eng)  
+<!--## Opening Song:
+<!--[When I am Baptised (Children's Songbook pg. 103)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-i-am-baptized?lang=eng)  
 
-## Opening Prayer:
-Emery Fenton
+<!--## Opening Prayer:
+<!--Emery Fenton
 
-## Reflection on Sarah
-Rachel Bradley
+<!--## Reflection on Sarah
+<!--Rachel Bradley
 
-## Talk on Baptism:
-Ricky Fenton
+<!--## Talk on Baptism:
+<!--Ricky Fenton
 
-## Baptismal Ordinance:
-Cameron Bradley
+<!--## Baptismal Ordinance:
+<!--Cameron Bradley
 
-## Witnesses:
-Hannah Fenton  
-Thomas Fenton
+<!--## Witnesses:
+<!--Hannah Fenton  
+<!--Thomas Fenton
 
-## Intermediate Songs:
-[I Feel My Savior's Love (Children's Songbook pg. 74)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-feel-my-saviors-love?lang=eng)  
-[I Am a Child of God (Children's Songbook pg. 2)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-am-a-child-of-god?lang=eng)  
-[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)  
+<!--## Intermediate Songs:
+<!--[I Feel My Savior's Love (Children's Songbook pg. 74)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-feel-my-saviors-love?lang=eng)  
+<!--[I Am a Child of God (Children's Songbook pg. 2)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-am-a-child-of-god?lang=eng)  
+<!--[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)  
 
-## Talk on Holy Ghost:
-Rick Fenton
+<!--## Talk on Holy Ghost:
+<!--Rick Fenton
 
-## Confirmation:
-Cameron Bradley (Voice)  
-Rick Fenton  
-Ricky Fenton  
-Thomas Fenton  
-Carston Feigleson  
-Alex Hallam  
-Art Sandridge    
-Bishop Benjamin Johnson
+<!--## Confirmation:
+<!--Cameron Bradley (Voice)  
+<!--Rick Fenton  
+<!--Ricky Fenton  
+<!--Thomas Fenton  
+<!--Carston Feigleson  
+<!--Alex Hallam  
+<!--Art Sandridge    
+<!--Bishop Benjamin Johnson
 
-## Bishopric Welcome:
-Jeffrey Austin
+<!--## Bishopric Welcome:
+<!--Jeffrey Austin
 
-## Primary Welcome:
-Jenna Moss
+<!--## Primary Welcome:
+<!--Jenna Moss
 
-## Closing Song:
-[When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
+<!--## Closing Song:
+<!--[When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
 
-## Closing Prayer:
-Evan Bradley
+<!--## Closing Prayer:
+<!--Evan Bradley
 
-## Zoom Link
-[Zoom Meeting](https://us04web.zoom.us/j/6755503911)  
-Meeting ID: 675 550 3911  
-Please mute your audio.  
-The password will be sent via text message. Thank you!-->
+<!--## Zoom Link
+<!--[Zoom Meeting](https://us04web.zoom.us/j/6755503911)  
+<!--Meeting ID: 675 550 3911  
+<!--Please mute your audio.  
+<!--The password will be sent via text message. Thank you!
