@@ -1,6 +1,6 @@
-<!--# Baptism of Sarah Elizabeth Bradley
+<!--# Baptism of Evan Michael Bradley
 <!--### Flat Creek Ward
-<!--### Newnan Sthrist of Latter-day Saints
+<!--### Newnan Stake, Church of Jesus Christ of Latter-day Saints
 <!--<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
 <!--<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 
