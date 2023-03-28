@@ -1,9 +1,8 @@
 # Baptism of Evan Michael Bradley
 ### Flat Creek Ward
 ### Newnan Stake, Church of Jesus Christ of Latter-day Saints
-<img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
-<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 <img src="https://www.dropbox.com/s/s5jybdnqobv8kmo/Evan%20%282%29.JPG?raw=1">
+<img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 
 ## Presiding and Conducting:
 Bishop Benjamin Johnson
