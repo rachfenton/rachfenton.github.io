@@ -52,7 +52,7 @@ Jeffrey Austin
 Jenna Moss
 
 ## Closing Song:
-[When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
+[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)
 
 ## Closing Prayer:
 Michelle Fenton
