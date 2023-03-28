@@ -10,6 +10,9 @@ Bishop Benjamin Johnson
 ## Chorister:
 Rachel Bradley
 
+## Accompanist:
+Sherri Moss
+
 ## Opening Song:
 [We'll Bring the World His Truth (Children's Songbook pg. 172)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)  
 
@@ -26,10 +29,7 @@ Cameron Bradley
 Sarah Bradley  
 Emery Fenton
 
-## Intermediate Songs:
-[I Feel My Savior's Love (Children's Songbook pg. 74)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-feel-my-saviors-love?lang=eng)  
-[I Am a Child of God (Children's Songbook pg. 2)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-am-a-child-of-god?lang=eng)  
-[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)  
+## Slide Show: 
 
 ## Talk on Holy Ghost:
 Rick Fenton
@@ -41,7 +41,8 @@ Ricky Fenton
 Thomas Fenton  
 Carston Feigleson  
 Alex Hallam  
-Art Sandridge    
+Kevin Moss
+Robert Forsberg
 Bishop Benjamin Johnson
 
 ## Bishopric Welcome:
@@ -54,7 +55,7 @@ Jenna Moss
 [When Jesus Christ Was Baptised (Children's Songbook pg. 102)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-jesus-christ-was-baptized?lang=eng)
 
 ## Closing Prayer:
-Evan Bradley
+Michelle Fenton
 
 ## Zoom Link
 [Zoom Meeting](https://)  
