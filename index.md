@@ -4,30 +4,27 @@
 <img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
 <img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 
-### Presiding and Conducting:
+## Presiding and Conducting:
 Bishop Benjamin Johnson
 
 ## Chorister:
 Rachel Bradley
 
 ## Opening Song:
-[When I am Baptised (Children's Songbook pg. 103)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-i-am-baptized?lang=eng)  
+[We'll Bring the World His Truth (Children's Songbook pg. 172)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)  
 
 ## Opening Prayer:
-Emery Fenton
-
-## Reflection on Sarah
-Rachel Bradley
+Melanie Fenton
 
 ## Talk on Baptism:
-Ricky Fenton
+Thomas Fenton
 
 ## Baptismal Ordinance:
 Cameron Bradley
 
 ## Witnesses:
-Hannah Fenton  
-Thomas Fenton
+Sarah Bradley  
+Emery Fenton
 
 ## Intermediate Songs:
 [I Feel My Savior's Love (Children's Songbook pg. 74)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/i-feel-my-saviors-love?lang=eng)  
