@@ -41,12 +41,12 @@ Ricky Fenton
 Thomas Fenton  
 Carston Feigleson  
 Alex Hallam  
-Kevin Moss
-Robert Forsberg
+Kevin Moss  
+Robert Forsberg  
 Bishop Benjamin Johnson
 
 ## Bishopric Welcome:
-Jeffrey Austin
+Bishop Benjamin Johnson
 
 ## Primary Welcome:
 Jenna Moss
