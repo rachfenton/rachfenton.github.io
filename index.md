@@ -4,14 +4,11 @@
 <img src="https://www.dropbox.com/s/mefqaiszgvfn8l9/Sarah.jpg?raw=1">
 <img src="https://www.dropbox.com/s/3nzq3t0zltvg5yl/john_baptizing_jesus_greg_olsen.jpeg?raw=1">
 
-### Presiding:
-#Bishop Benjamin Johnson
-
-### Conducting:
-Jeffrey Austin
+### Presiding and Conducting:
+Bishop Benjamin Johnson
 
 ## Chorister:
-Melanie Fenton
+Rachel Bradley
 
 ## Opening Song:
 [When I am Baptised (Children's Songbook pg. 103)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/when-i-am-baptized?lang=eng)  
