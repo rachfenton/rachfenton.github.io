@@ -14,7 +14,7 @@ Rachel Bradley
 Sherri Moss
 
 ## Opening Song:
-[We'll Bring the World His Truth (Children's Songbook pg. 172)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)  
+[We'll Bring the World His Truth (Children's Songbook pg. 172)](https://www.churchofjesuschrist.org/study/manual/childrens-songbook/well-bring-the-world-his-truth-army-of-helaman?lang=eng)  
 
 ## Opening Prayer:
 Melanie Fenton
@@ -52,7 +52,7 @@ Bishop Benjamin Johnson
 Jenna Moss
 
 ## Closing Song:
-[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/music/library/childrens-songbook/a-childs-prayer?lang=eng)
+[A Child's Prayer (Children's Songbook pg. 12)](https://www.churchofjesuschrist.org/study/manual/childrens-songbook/a-childs-prayer?lang=eng)
 
 ## Closing Prayer:
 Michelle Fenton
