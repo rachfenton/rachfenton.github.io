@@ -58,6 +58,6 @@ Jenna Moss
 Michelle Fenton
 
 ## Zoom Link
-[Zoom Meeting](https://us05web.zoom.us/j/84186980197)  
+[Click Here to Join Zoom Meeting](https://us05web.zoom.us/j/84186980197)  
 Please mute your audio.  
 The password will be sent via text message. Thank you!
