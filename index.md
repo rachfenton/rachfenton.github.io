@@ -29,7 +29,11 @@ Cameron Bradley
 Sarah Bradley  
 Emery Fenton
 
-## Slide Show: 
+## Slide Show:
+
+## Special Musical Number (His Hands)
+Rachel Bradley (Vocalist)
+Sherri Moss (Accompanist)
 
 ## Talk on Holy Ghost:
 Rick Fenton
