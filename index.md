@@ -31,7 +31,7 @@ Emery Fenton
 
 ## Slide Show:
 
-## Special Musical Number (His Hands)
+## Special Musical Number:
 Rachel Bradley (Vocalist)  
 Sherri Moss (Accompanist)  
 
